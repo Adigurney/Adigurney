@@ -52,7 +52,7 @@
 
 - 🤝 I’m looking for help with **Javascript**
 
-- 📫 How to reach me **Adigurney@gmail,com**
+- 📫 How to reach me **Adigurney@broncos.uncfsu.edu**
 
 - ⚡ Fun fact **I used to jump out of planes ine the military.**
 
