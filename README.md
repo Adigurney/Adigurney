@@ -54,7 +54,7 @@
 
 - 📫 How to reach me **Adigurney@broncos.uncfsu.edu**
 
-- ⚡ Fun fact **I used to jump out of planes ine the military.**
+- ⚡ Fun fact **I used to jump out of planes in the military.**
 
 
 <!--
